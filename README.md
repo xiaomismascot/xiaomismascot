@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @xiaomismascot
+- 👀 I’m interested in Websites
+-  I’m currently learning lua
+-  How to contact me: Telegram,Tiktok,Discord,Github,Instagram,Twitter,Email,SMS
+- Pronouns: He/Him/They/Them
+-  Fun fact: i'm a silly goober
